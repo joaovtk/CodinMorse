@@ -1,0 +1,1 @@
+Politicas de Privacidade e Termos e condições em breve
